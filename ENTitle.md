@@ -1,8 +1,11 @@
+英语新闻标题比较精简，语法比较特殊，需多看多学
 
-###### Both US and China to have ambassadorial vacancies
-to have 不定式表将来 ambassadorial vacancies 大使的空缺
+Both US and China to have ambassadorial vacancies
+to have 不定式表将来
+ambassadorial vacancies 大使的空缺
 美国和中国的大使在未来可能会出现空缺
 
-###### Russian forces confront British warship in Black Sea encounter
-confront 作对抗、对峙解  encounter 作遭遇解
+Russian forces confront British warship in Black Sea encounter
+confront 作对抗、对峙解  
+encounter 作遭遇解
 俄军与英国军舰在黑海遭遇并对峙
