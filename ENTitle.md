@@ -10,3 +10,7 @@ confront 作对抗、对峙解
 encounter 作遭遇解  
 俄军与英国军舰在黑海遭遇并对峙  
   
+A collision course with a great wall of steel  
+与钢铁长城的碰撞/冲突  
+a great wall of steel 钢铁长城  
+a collision course with 与什么发生碰撞/冲突  
