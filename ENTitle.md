@@ -21,4 +21,5 @@ withdrawal用名词不用withdraw 避免动词相关变化
   
 As Western Wildfires Worsen, FEMA Is Denying Most People Who Ask For Help  
 由于西部的野火愈演愈烈，FEMA正在拒绝为大部分求助者提供救援  
+denying 拒绝  
   
