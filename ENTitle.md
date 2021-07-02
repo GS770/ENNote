@@ -16,5 +16,5 @@ a great wall of steel 钢铁长城
 a collision course with 与什么发生碰撞/冲突  
 
 US withdrawal from Afghanistan nears completion  
-美国从阿富汗撤军即将完成
+美国从阿富汗撤军即将完成  
 withdrawal用名词不用withdraw 避免动词相关变化
